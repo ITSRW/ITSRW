@@ -1,3 +1,3 @@
 - Labmem No.001 of ITSRW - Lintaro
 - Main research area: System engineering; Intelligence optimal algrithm; Information system engineering; Neure Network;
-- E-mail:itsrwhq@protonmail.com
+- E-mail:itsrwhq@protonmail.com(Oversea);itsrw@outlook.com(Internal);
